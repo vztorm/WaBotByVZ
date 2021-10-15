@@ -3,4 +3,4 @@
 
 Ele funciona junto com o aplicativo AutoResponder Premium!
 
-Espero que gostem1
+Espero que gostem!
